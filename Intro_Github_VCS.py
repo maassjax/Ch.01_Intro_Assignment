@@ -137,7 +137,6 @@ My favorite sports team are the Iowa Hawkeyes
 My favorite color is white or black
 I also enjoy playing guitar
 
-
 ------------------Student 14------------------
 
 
